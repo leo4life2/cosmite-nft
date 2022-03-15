@@ -1,4 +1,4 @@
 # cosmite-nft
 
 
-Gay pokemons
+We make Gay pokemons
